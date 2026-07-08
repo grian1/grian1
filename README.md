@@ -1,4 +1,4 @@
-the![banner](https://files.catbox.moe/bvqc0f.png)
+![banner](https://files.catbox.moe/bvqc0f.png)
 
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
