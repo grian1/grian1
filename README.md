@@ -4,7 +4,9 @@
 
 ୨୧ ───────── ୨୧
 
-**Grian / Gri / G**  ✧ *he / him*  ✧  9teen
+**Grian / Gri / G** 
+
+✧ *he / him*  ✧  9teen
 ✦ Trans  ✦  Aroace
 
 ୨୧ ───────── ୨୧
