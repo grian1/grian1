@@ -6,11 +6,11 @@
 
 **Grian / Gri / G** 
 
-✧ *he / him*  ✧  ∿. ᶻz 9teen
+✧ *he / him*  *✧  ∿. ᶻz* 9teen
 ✦ Trans  ✦  Aroace
 
 ୨୧ ───────── ୨୧
-
+Basic Dni ︵  *Boundaries;*
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
