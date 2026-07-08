@@ -1,4 +1,3 @@
-![banner](https://files.catbox.moe/6sgxb6.png)
 ![banner](https://files.catbox.moe/bvqc0f.png)
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
