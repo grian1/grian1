@@ -6,7 +6,7 @@
 
 **Grian / Gri / G** 
 
-✧ *he / him*  ✧  9teen
+✧ *he / him*  ✧  ∿. ᶻz 9teen
 ✦ Trans  ✦  Aroace
 
 ୨୧ ───────── ୨୧
