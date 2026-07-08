@@ -3,8 +3,10 @@
 ![banner](https://files.catbox.moe/1dfujn.gif)
 
 ୨୧ ───────── ୨୧
-**Grian / Gri / G**  *he / him*  ✧  9teen
+
+**Grian / Gri / G**  ✧ *he / him*  ✧  9teen
 ✦ Trans  ✦  Aroace
+
 ୨୧ ───────── ୨୧
 
 ![banner](https://files.catbox.moe/lqbttt.jpg)
