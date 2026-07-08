@@ -1,5 +1,5 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
-![banner](https://files.catbox.moe/bhp0f4.png)
+![banner](https://files.catbox.moe/brtb5k.png)
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
