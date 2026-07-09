@@ -13,6 +13,7 @@
  Dni ︵ *Boundaries;*
 
 Basic DNI criteria ︵ -14 / 25+ 
+![banner](https://files.catbox.moe/lll00r.png)
 
 *𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨* **any of my ponies, my style in general or the Color scheme✰**
 
@@ -22,3 +23,5 @@ If you have an issue with me → talk to me, not them.It’s not their responsib
 ![banner](https://files.catbox.moe/gstqhf.jpg)
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
+
+
