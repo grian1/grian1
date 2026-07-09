@@ -15,7 +15,7 @@
 Basic DNI / Cafeteria criteria 
 , -14 / 27+ 
 
-**𝐃𝐍𝐂/𝐈𝐍𝐒𝐏𝐎 any of my ponies, my style in general or the Color scheme✰**
+𝐃𝐍𝐂/𝐈𝐍𝐒𝐏𝐎 **any of my ponies, my style in general or the Color scheme✰**
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems ୨୧ 
