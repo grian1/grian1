@@ -13,7 +13,7 @@
  Dni ︵ *Boundaries;*
 
 Basic DNI criteria ︵ -14 / 25+ 
-![banner](https://files.catbox.moe/lll00r.png)
+![banner](https://files.catbox.moe/l8ihuo.png)
 
 *𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨* **any of my ponies, my style in general or the Color scheme✰**
 
