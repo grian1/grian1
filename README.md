@@ -6,16 +6,16 @@
 
 **Grian / Gri / G** 
 
-✧ *he / him*  *✧  ∿. ᶻz* 9teen
+✧ *he / him*  *✧  ∿. ᶻz* twenty
 ✦ Trans  ✦  Aroace
 
 ୨୧ ───────── ୨୧
  Dni ︵  *Boundaries;*
 
 Basic DNI / Cafeteria criteria 
-, -14 / 25+ 
+, -14 / 27+ 
 
-**𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨 any of my ponies, my style in general or the Color scheme."**
+** 𝘿𝙉𝘾/𝙄𝙉𝙎𝙋𝙊 any of my ponies, my style in general or the Color scheme✰**
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems ୨୧ ───────── ୨୧
