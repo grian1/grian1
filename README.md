@@ -12,8 +12,7 @@
 ୨୧ ───────── ୨୧
  Dni ︵ *Boundaries;*
 
-Basic DNI criteria 
-, -14 / 25+ 
+Basic DNI criteria ︵ -14 / 25+ 
 
 *𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨* **any of my ponies, my style in general or the Color scheme✰**
 
