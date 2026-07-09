@@ -6,11 +6,11 @@
 
 **Grian / Gri / G** 
 
-✧ *he / him*  *✧  ∿. ᶻz* twenty
+✧ *he / him*  ✧  ∿. ︵ **twenty**
 ✦ Trans  ✦  Aroace
 
 ୨୧ ───────── ୨୧
- Dni ︵  *Boundaries;*
+ Dni ︵ *Boundaries;*
 
 Basic DNI / Cafeteria criteria 
 , -14 / 27+ 
