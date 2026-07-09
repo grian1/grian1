@@ -7,7 +7,7 @@
 **Grian / Gri / G** 
 
 ✧ *he / him*  ✧  ∿. ︵ **twenty**
-✦ Trans  ✦  Aroace
+✦ Aroace
 
 ୨୧ ───────── ୨୧
  Dni ︵ *Boundaries;*
