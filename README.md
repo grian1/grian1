@@ -19,9 +19,11 @@ Basic DNI criteria ︵ -14 / 25+
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems ୨୧ 
+
 ୨୧───────── ୨୧
 ![banner](https://files.catbox.moe/gstqhf.jpg)
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
 
+Fanart by u/Null2947 on Reddit
 
