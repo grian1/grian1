@@ -25,5 +25,5 @@ If you have an issue with me → talk to me, not them.It’s not their responsib
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
 
-Fanart by u/Null2947 on Reddit
+*Fanart by u/Null2947 on Reddit*
 
