@@ -15,7 +15,7 @@
 Basic DNI criteria ︵ -14 / 25+ 
 ![banner](https://files.catbox.moe/l8ihuo.png)
 
-*𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨* **any of my ponies, my style in general or the Color scheme✰**
+Don't copy/get Inspo any of my ponies, my style in general or the Color scheme✰**
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems ୨୧ 
