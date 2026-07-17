@@ -7,7 +7,7 @@ u![banner](https://files.catbox.moe/lqbttt.jpg)
 **Grian / Gri / G** 
 
 ✧ *he / him*  ✧  ∿. ︵ **twenty**
-✦ Aroace ♪ → socializing won't talk much there
+✦ Aroace ♪ → bad at socializing won't talk much there
 
 ୨୧ ───────── ୨୧
  Dni ︵ *Boundaries;*
