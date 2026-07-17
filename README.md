@@ -7,7 +7,7 @@ u![banner](https://files.catbox.moe/lqbttt.jpg)
 **Grian / Gri / G** 
 
 ✧ *he / him*  ✧  ∿. ︵ **twenty**
-✦ Aroace
+✦ Aroace I'm bad at socializing and prob won't talk much there
 
 ୨୧ ───────── ୨୧
  Dni ︵ *Boundaries;*
@@ -20,7 +20,6 @@ Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems ୨୧ 
 ୨୧───────── ୨୧
 ![banner](https://files.catbox.moe/l8ihuo.png)
-I'm bad at socializing and prob won't talk much there
 ![banner](https://files.catbox.moe/gstqhf.jpg)
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
