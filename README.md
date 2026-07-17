@@ -1,4 +1,4 @@
-u![banner](https://files.catbox.moe/lqbttt.jpg)
+![banner](https://files.catbox.moe/lqbttt.jpg)
 ![banner](https://files.catbox.moe/brtb5k.png)
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 
