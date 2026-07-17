@@ -18,8 +18,11 @@ Basic DNI criteria ︵ -14 / 25+
 Don't copy/get Inspo any of my ponies, my style in general or the Color scheme✰**
 
 Always respect my friends.
-If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems ୨୧ I'm bad at socializing 
+If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems ୨୧ 
 ୨୧───────── ୨୧
+![banner](https://files.catbox.moe/l8ihuo.png)
+
+I'm bad at socializing and prob won't talk much there 
 ![banner](https://files.catbox.moe/gstqhf.jpg)
 
 ![views](https://komarev.com/ghpvc/?username=grian1)
