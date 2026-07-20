@@ -10,7 +10,7 @@
 ![banner](https://files.catbox.moe/l8ihuo.png)
 ⠀**Don't copy/get Inspo of my ponies, my style in general or the Color scheme✰**
 
-→ I'm bad at socializing ⋆ Respect my friends
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀→ I'm bad at socializing ⋆ Respect my friends
 ![banner](https://files.catbox.moe/l8ihuo.png)
 ![banner](https://files.catbox.moe/gstqhf.jpg)
 
