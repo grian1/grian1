@@ -1,7 +1,7 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 ![banner](https://files.catbox.moe/brtb5k.png)
 ![banner](https://files.catbox.moe/lqbttt.jpg)
-**Grian / Gri / G** 
+⠀⠀⠀⠀⠀⠀⠀**Grian / Gri / G** 
 
 ⠀⠀⠀⠀⠀⠀✧ he / him ✧ twenty ✦ Aroace
 ୨୧ ───────── ୨୧
