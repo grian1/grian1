@@ -3,8 +3,8 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 ⠀⠀⠀⠀⠀⠀⠀**Grian / Gri / G** 
 
-⠀⠀⠀⠀✧ he / him ✧ twenty ✦ Aroace
-⠀⠀⠀⠀⠀  ୨୧ ───────── ୨୧
+⠀⠀⠀⠀⠀⠀⠀✧ he / him ✧ twenty ✦ Aroace
+⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ୨୧ ───────── ୨୧
 
 ⠀⠀⠀⠀⠀⠀⠀⠀DNI ⌢ Boundaries;
  ⠀⠀⠀⠀Basic DNI criteria ︵ -14 / 25+ 
