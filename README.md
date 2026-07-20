@@ -3,7 +3,7 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Grian/Gri/G](https://img.shields.io/badge/Grian/Gri/G-D4A373?style=for-the-badge) 
 
-⠀⠀⠀⠀⠀⠀![He / Him ](https://img.shields.io/badge/He/Him-D4A373?style=for-the-badge)![Aroace](https://img.shields.io/badge/Aroace-D4A373?style=for-the-badge)
+⠀⠀⠀⠀⠀⠀![He / Him ](https://img.shields.io/badge/He/Him-D4A373?style=for-the-badge)![Aroace](https://img.shields.io/badge/Aroace⋆-D4A373?style=for-the-badge)
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ୨୧ ──────────────── ୨୧
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀DNI ⌢ Boundaries;⠀⠀⠀
