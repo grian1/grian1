@@ -16,7 +16,7 @@
 ![banner](https://files.catbox.moe/l8ihuo.png)
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 ![banner](https://files.catbox.moe/cvg8ju.png)
-![Grian/Gri/G](https://img.shields.io/badge/mymainponies-D4A373?style=for-the-badge) 
+![Grian/Gri/G](https://img.shields.io/badge/main-ponies-D4A373?style=for-the-badge) 
 again don't copy or get inspo of any of my pomies
 
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀![Profile Views](https://komarev.com/ghpvc/?username=lgrian1&color=d4a373)
