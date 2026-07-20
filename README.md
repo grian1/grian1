@@ -6,7 +6,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![He / Him ](https://img.shields.io/badge/He/Him⋆-c19a6b?style=for-the-badge)![Aroace](https://img.shields.io/badge/Aroace⋆-c19a6b?style=for-the-badge)
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ୨୧ ──────────────── ୨୧
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀DNI ⌢ Boundaries;⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![DNI ⌢ Boundaries;](https://img.shields.io/badge/DNI⌢Boundaries;⋆-c19a6b?style=for-the-badge)⠀⠀⠀
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ୨୧ ──────────────── ୨୧
 ⠀ ⠀⠀⠀⠀⠀⠀⠀Basic DNI criteria ︵ -14 / 25+ 
 ![banner](https://files.catbox.moe/l8ihuo.png)
