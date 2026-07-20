@@ -4,10 +4,10 @@
 ⠀⠀⠀⠀⠀⠀⠀**Grian / Gri / G** 
 
 ⠀⠀⠀⠀⠀⠀⠀✧ he / him ✧ twenty ✦ Aroace
-⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ୨୧ ───────── ୨୧
+⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ୨୧ ───────── ୨୧
 
-⠀⠀⠀⠀⠀⠀⠀⠀DNI ⌢ Boundaries;
- ⠀⠀⠀⠀Basic DNI criteria ︵ -14 / 25+ 
+⠀⠀⠀⠀⠀⠀⠀⠀DNI ⌢ Boundaries;⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ ⠀⠀⠀⠀⠀⠀⠀⠀Basic DNI criteria ︵ -14 / 25+ 
 ![banner](https://files.catbox.moe/l8ihuo.png)
 **Don't copy/get Inspo of my ponies, my style in general or the Color scheme✰**
 
