@@ -3,9 +3,7 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 **Grian / Gri / G** 
 
-✧ *he / him*  ✧  ∿. ︵ **twenty**
-✦ Aroace 
-
+⠀⠀⠀⠀⠀⠀✧ he / him ✧ twenty ✦ Aroace
 ୨୧ ───────── ୨୧
 
  Dni ︵ *Boundaries;*
