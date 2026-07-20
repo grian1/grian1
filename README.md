@@ -1,7 +1,7 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 ![banner](https://files.catbox.moe/brtb5k.png)
 ![banner](https://files.catbox.moe/lqbttt.jpg)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**Grian / Gri / G** 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Grian/Gri/G](https://img.shields.io/badge/Grian/Gri/G-D4A373?style=for-the-badge) 
 
 ⠀⠀⠀⠀⠀⠀⠀⋆ he / him ✧ twenty ✦ ![Aroace](https://img.shields.io/badge/Aroace-D4A373?style=for-the-badge)
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ୨୧ ──────────────── ୨୧
