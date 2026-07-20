@@ -14,7 +14,9 @@
 
 ⠀⠀⠀→ I'm bad at socializing ⋆ Respect my friends
 ![banner](https://files.catbox.moe/l8ihuo.png)
-![banner](https://files.catbox.moe/gstqhf.jpg)
+![banner](https://files.catbox.moe/lqbttt.jpg)
+![banner](https://files.catbox.moe/cvg8ju.png)
+![My Main ponies](https://img.shields.io/badge/main.poniesD4A373?style=for-the-badge) 
 
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀![Profile Views](https://komarev.com/ghpvc/?username=lgrian1&color=d4a373)
 
