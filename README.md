@@ -3,7 +3,7 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**Grian / Gri / G** 
 
-⠀⠀⠀⠀⠀⠀⠀⋆ he / him ✧ twenty ✦ Aroace
+⠀⠀⠀⠀⠀⠀⠀⋆ he / him ✧ twenty ✦ ![Aroace](https://img.shields.io/badge/Aroace-D4A373?style=for-the-badge)
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ୨୧ ──────────────── ୨୧
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀DNI ⌢ Boundaries;⠀⠀⠀
