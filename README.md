@@ -16,7 +16,7 @@
 ![banner](https://files.catbox.moe/l8ihuo.png)
 ![banner](https://files.catbox.moe/gstqhf.jpg)
 
-⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀![Profile Views](https://komarev.com/ghpvc/?username=lgrian1&color=d4a373))
+⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀![Profile Views](https://komarev.com/ghpvc/?username=lgrian1&color=d4a373)
 
 *Fanart by u/Null2947 on Reddit*
 
