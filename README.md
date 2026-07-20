@@ -1,9 +1,6 @@
 ![banner](https://files.catbox.moe/lqbttt.jpg)
 ![banner](https://files.catbox.moe/brtb5k.png)
 ![banner](https://files.catbox.moe/lqbttt.jpg)
-
-୨୧ ───────── ୨୧
-
 **Grian / Gri / G** 
 
 ✧ *he / him*  ✧  ∿. ︵ **twenty**
