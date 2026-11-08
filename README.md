@@ -1,4 +1,5 @@
 ![Beschreibung des Bildes](https://cdn.phototourl.com/member/2026-11-08-73f543dc-da45-4d40-af3a-8a926635a986.gif)
+![Beschreibung des Bildes](https://cdn.phototourl.com/member/2026-11-08-506bc6e0-b5de-4193-ae1d-f732478c0f1b.png)
 <!--
 **grian1/grian1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
