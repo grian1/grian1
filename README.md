@@ -6,7 +6,9 @@
 
 ![Beschreibung des Bildes](https://files.catbox.moe/t11lxk.png)
        જ⁀➴ grian 𓂃 gri  ִֶָ𖤐 g
-‧⋆｡˚꒰ঌ☆໒꒱˚｡ w2i ⋆𓂃࣪˖  𓂃࣪˖ dncover
+
+         ‧⋆｡˚꒰ঌ☆໒꒱˚｡ w2i ⋆𓂃࣪˖  
+ dncover
 ![Beschreibung des Bildes](https://files.catbox.moe/t11lxk.png)
 <!--
 **grian1/grian1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
