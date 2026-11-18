@@ -5,8 +5,7 @@
 ![Beschreibung des Bildes](https://files.catbox.moe/08x74g.png)
 
 ![Beschreibung des Bildes](https://files.catbox.moe/t11lxk.png)
-
-  ☆ Art credits to: @fancaser & @iveory_ on X
+  ☆ Art credits to: @fancaser, @iveory_ & Di_Field on X
 ![Beschreibung des Bildes](https://files.catbox.moe/t11lxk.png)
 <!--
 **grian1/grian1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
