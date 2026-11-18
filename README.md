@@ -4,9 +4,10 @@
 
 ![Beschreibung des Bildes](https://files.catbox.moe/08x74g.png)
 
-![Beschreibung des Bildes](https://cdn.phototourl.com/member/2026-11-08-2a2de55f-7790-4915-908f-7128a6610bef.png)
+![Beschreibung des Bildes](https://files.catbox.moe/08x74g.png)
+
   ☆ Art credits to: @fancaser & @iveory_ on X
-![Beschreibung des Bildes](https://cdn.phototourl.com/member/2026-11-08-2a2de55f-7790-4915-908f-7128a6610bef.png)
+![Beschreibung des Bildes](https://files.catbox.moe/uq38gx.png)
 <!--
 **grian1/grian1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
