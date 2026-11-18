@@ -4,8 +4,6 @@
 
 ![Beschreibung des Bildes](https://files.catbox.moe/08x74g.png)
 
-![Beschreibung des Bildes](https://cdn.phototourl.com/member/2026-11-08-dd5e1b7f-07bc-453a-83e4-66b0ed102e4f.png)
-
 ![Beschreibung des Bildes](https://cdn.phototourl.com/member/2026-11-08-2a2de55f-7790-4915-908f-7128a6610bef.png)
   ☆ Art credits to: @fancaser & @iveory_ on X
 ![Beschreibung des Bildes](https://cdn.phototourl.com/member/2026-11-08-2a2de55f-7790-4915-908f-7128a6610bef.png)
