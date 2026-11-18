@@ -4,7 +4,7 @@
 
 ![Beschreibung des Bildes](https://files.catbox.moe/08x74g.png)
 
-![Beschreibung des Bildes](https://files.catbox.moe/08x74g.png)
+![Beschreibung des Bildes](https://files.catbox.moe/uq38gx.png)
 
   ☆ Art credits to: @fancaser & @iveory_ on X
 ![Beschreibung des Bildes](https://files.catbox.moe/uq38gx.png)
