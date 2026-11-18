@@ -5,8 +5,7 @@
 ![Beschreibung des Bildes](https://files.catbox.moe/08x74g.png)
 
 ![Beschreibung des Bildes](https://files.catbox.moe/t11lxk.png)
-
-જ⁀➴Art credits to: @fancaser, @iveory_ & @DS_Field
+⁀➴Art credits to: @fancaser, @iveory_ & @DS_Field
 
 ![Beschreibung des Bildes](https://files.catbox.moe/t11lxk.png)
 <!--
